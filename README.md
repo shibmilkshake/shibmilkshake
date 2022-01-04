@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shibmilkshake
+- 👋 Hi, I’m MILKSHAKE (@shibmilkshake)
 - 👀 I’m interested in SHIB (Shiba Inu)
 
 <!---
